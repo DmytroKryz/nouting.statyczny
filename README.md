@@ -1,0 +1,1 @@
+# nouting.statyczny
